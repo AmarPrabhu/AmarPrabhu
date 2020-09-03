@@ -2,6 +2,10 @@ You can find me here:
 
 [Twitter](https://twitter.com/prabhualways)
 
+[Linkedin](https://www.linkedin.com/in/amarprabhu/)
+
+[Quora](https://www.quora.com/profile/Amar-Prabhu)
+
 
 <!--
 **AmarPrabhu/AmarPrabhu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
