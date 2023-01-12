@@ -6,6 +6,9 @@ You can find me here:
 
 [Quora](https://www.quora.com/profile/Amar-Prabhu)
 
+[Strava](https://www.strava.com/athletes/10379930)
+
+[IG](https://www.instagram.com/prabhualways/)
 
 <!--
 **AmarPrabhu/AmarPrabhu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
