@@ -4,9 +4,9 @@ You can find me here:
 
 [Linkedin](https://www.linkedin.com/in/amarprabhu/)
 
-[Quora](https://www.quora.com/profile/Amar-Prabhu)
-
 [Strava](https://www.strava.com/athletes/10379930)
+
+[Quora](https://www.quora.com/profile/Amar-Prabhu)
 
 [IG](https://www.instagram.com/prabhualways/)
 
